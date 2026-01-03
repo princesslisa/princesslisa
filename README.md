@@ -59,7 +59,7 @@ Each system was built for a real-world client, organization, or use case. They:
 
 📂 **Full Project Portfolio:** [Click here to view the project document](https://docs.google.com/document/d/1oumLDxrQHnikXOhEnX9Oi_yjdNUSp50jVw3rKB1wNgk/edit?usp=sharing)  
 📧 **Reach out:** wrightlisa20829@gmail.com  
-🌐 **LinkedIn:** [linkedin.com/in/princess-ogbechie](https://www.linkedin.com/in/princess-ogbechie)
+🌐 **LinkedIn:** [Princess Lisa Ogbechie](https://www.linkedin.com/in/princess-lisa-ogbechie-pmp%C2%AE-52a401134/)
 
 ---
 
